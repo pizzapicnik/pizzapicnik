@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @pizzapicnik
-- 👀 I’m interested in doom
+- 👀 I’m interested in anime
 - 🌱 I’m currently learning nothing
-- 💞️ I’m looking to collaborate on doom reps
+- 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me ultraegovegeta@outlook.com.au
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I beat all the dooms
+- ⚡ Fun fact: I watched all of tokyo ghoul
