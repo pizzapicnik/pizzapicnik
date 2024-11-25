@@ -1,7 +1,1 @@
-- 👋 Hi, I’m @pizzapicnik
-- 👀 I’m interested in anime
-- 🌱 I’m currently learning nothing
-- 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me ultraegovegeta@outlook.com.au
-- 😄 Pronouns: he/him
-- ⚡ Fun fact: I watched all of tokyo ghoul
+Long after the bomb falls and you and your good deeds are gone, cockroaches will still be here,prowling the streets like armored trucks.
